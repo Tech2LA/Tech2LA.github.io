@@ -1,1 +1,3 @@
-# Technology and Liberal Arts
+# Technology ❤ Liberal Arts
+
+Hi there ❤
