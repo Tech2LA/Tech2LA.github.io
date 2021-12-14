@@ -1,1 +1,1 @@
-# tech2la.github.io
+# Technology and Liberal Arts
